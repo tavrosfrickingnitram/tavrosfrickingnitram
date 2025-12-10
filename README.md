@@ -1,6 +1,9 @@
 ![0ddf958cd3ed8b8a2ddb858baea71825](https://github.com/user-attachments/assets/8e9c5091-c676-4f04-8287-3422eabad1f4)
 
 <p>hi guys im nathan im a heavy tavros kin and i am sick of vriska fans following me DNI IF YOU DEFEND OR KIN VRISKA GET OUT OF MY FACE</p>
+<p> i'm 14 and adults weird me out so if youre older than 18 please don't follow me either </p>
+<p> wow thats a lot of dnis ok</p>
+<p> i like a lot of stuff, my biggest interests are homestuck, hetalia, hotline miami, and analog horror. i really like visually horrible things with great plots. theyre cool. I make art and i really like bugs. OKAY THATS ALL </p>
 <h1>please this is only here because i like myself and i wanted an actual profile on something</h1>
 <img width="99" height="57" alt="520511777-b57a32c6-0e9b-4e86-ba37-1f8af847663f" src="https://github.com/user-attachments/assets/8f4e72f0-d8cd-4f6f-860e-568e4724d410" />
 <img width="110" height="60" alt="bropoint" src="https://github.com/user-attachments/assets/faaa305b-604a-4213-b94a-c060dcb0e238" />
