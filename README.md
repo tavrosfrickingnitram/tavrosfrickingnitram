@@ -1,3 +1,5 @@
+![0ddf958cd3ed8b8a2ddb858baea71825](https://github.com/user-attachments/assets/8e9c5091-c676-4f04-8287-3422eabad1f4)
+
 <p>hi guys im nathan im a heavy tavros kin and i am sick of vriska fans following me DNI IF YOU DEFEND OR KIN VRISKA GET OUT OF MY FACE</p>
 <h1>please this is only here because i like myself and i wanted an actual profile on something</h1>
 <img width="99" height="57" alt="520511777-b57a32c6-0e9b-4e86-ba37-1f8af847663f" src="https://github.com/user-attachments/assets/8f4e72f0-d8cd-4f6f-860e-568e4724d410" />
